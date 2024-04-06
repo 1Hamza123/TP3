@@ -5,3 +5,9 @@
 ![image](https://github.com/1Hamza123/TP3/assets/138600128/008335d9-8e05-4203-ae7f-1b9405f77238)
 
 
+Suppression de meski 
+
+![image](https://github.com/1Hamza123/TP3/assets/138600128/e35c99dd-df8a-4d3f-aeff-fecd6bf04a26)
+
+
+
